@@ -1,0 +1,2 @@
+# Halalcoin
+ISLAMIC CRYPTO CURRENCY "HALAL"
